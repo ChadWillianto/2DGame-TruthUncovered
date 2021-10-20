@@ -9,7 +9,7 @@ andresgercie@gmail.com / https://www.linkedin.com/in/andres-fernando-garcia-delg
 - Julian Evan (Sounds)\
 julianevan72@gmail.com / https://www.linkedin.com/in/julian-evan-872b50190/
 - Richard Willianto Krisan (Characters)\
-richard.wwillianto@gmail.com / https://www.linkedin.com/in/richard-willianto-835b50190/
+richard.willianto@gmail.com / https://www.linkedin.com/in/richard-willianto-835b50190/
 
 **Showcase:**\
 [Demo Video](https://drive.google.com/file/d/1xYb-2NGjYE0wwJxrtQ_iRvz34htEBDjT/view?usp=sharing)
